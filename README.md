@@ -14,3 +14,12 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Im Matias!:wink:
+
+I am a lawyer and technology enthusiast
+
+I began to venture into programming in the midst of the pandemic and now I am in the last year of my programming degree.
+
+I hope to be able to apply these learnings to the practice of law and bring new tools to my colleagues.
+
+In my free time I like to watch series and movies, but I also really enjoy video games. :sunglasses:
